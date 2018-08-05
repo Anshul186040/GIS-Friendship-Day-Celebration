@@ -27,4 +27,12 @@ BEST CARDS WILL BE REWARDED WITH SOMETHING MORE SURPRISE THINGS..
   https://yashsartanpara.github.io/FriendshipDayCard/ <br/>
   https://github.com/yashsartanpara/FriendshipDayCard <br/>
   
+* Anshul Gupta (@Anshul Gupta.abnd) <br/>
+https://github.com/Anshul1507/Friendship-Day-Celebration <br/>
+https://user-images.githubusercontent.com/38963667/43691262-99b48f30-9937-11e8-97e5-a681bd225694.png <br/>
+https://user-images.githubusercontent.com/38963667/43691263-99f2fc5c-9937-11e8-9235-1b94d36ba30e.png <br/>
+https://user-images.githubusercontent.com/38963667/43691264-9a3192f0-9937-11e8-8c8a-3b6112c85089.png <br/>
+https://user-images.githubusercontent.com/38963667/43691265-9a6edc6e-9937-11e8-9fbe-9c2ee3b2a892.png <br/>
+  
+  
  
